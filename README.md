@@ -1,14 +1,14 @@
 ### Bonjour! I'm Lila 🖖
 
-🔭 I’m currently exploring GIS
-👀 I’m interested in Wordpress & React.js
-🚀 Owner and Founder of BL DIGITAL
-⭐ Webiste: https://bldigital.it/
-💞️ Gaming --> RPG (Skyrim, FFVII Fan..)
-📖 Sci-fy (Frank Herbert, Isaac Asimov...) and horror (Google's newest algorithm update..)
+- 🔭 I’m currently exploring GIS
+- 👀 I’m interested in Wordpress & React.js
+- 🚀 Owner and Founder of BL DIGITAL
+- ⭐ Webiste: https://bldigital.it/
+- 💞️ Gaming --> RPG (Skyrim, FFVII Fan..)
+- 📖 Sci-fy (Frank Herbert, Isaac Asimov...) and horror (Google's newest algorithm update..)
 
-Let's connect 👉✨👈
-Send me a pigeon 🐦 ✉️ info@bldigital.it
+- Let's connect 👉✨👈
+- Send me a pigeon 🐦 ✉️ info@bldigital.it
 
 <br>
 
