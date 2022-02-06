@@ -6,6 +6,7 @@
 - ⭐ Webiste: https://bldigital.it/
 - 💞️ Gaming --> RPG (Skyrim, FFVII Fan..)
 - 📖 Sci-fy (Frank Herbert, Isaac Asimov...) and horror (Google's newest algorithm update..)
+- 🤿 TrimixDiver
 
 - Let's connect 👉✨👈
 - Send me a pigeon 🐦 ✉️ info@bldigital.it
