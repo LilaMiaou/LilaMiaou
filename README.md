@@ -5,7 +5,7 @@
 - 🚀 Owner and Founder of BL DIGITAL
 - ⭐ Webiste: https://bldigital.it/
 - 💞️ Gaming --> RPG (Skyrim, FFVII Fan..)
-- 📖 Sci-fy (Frank Herbert, Isaac Asimov...) and horror (Google's newest algorithm update..)
+- 📖 Sci-fi (Frank Herbert, Isaac Asimov...) and horror (Google's newest algorithm update..)
 - 🤿 TrimixDiver
 
 - Let's connect 👉✨👈
