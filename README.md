@@ -1,8 +1,8 @@
 ### Bonjour! I'm Lila 🖖
 
 - 🔭 I’m currently exploring GIS
-- 👀 I’m interested in Wordpress & React.js
-- 🚀 Owner and Founder of BL DIGITAL
+- 👀 I’m interested in WordPress & React.js
+- 🚀 SEO Master - Owner and Founder of BL DIGITAL
 - ⭐ Webiste: https://bldigital.it/
 - 💞️ Gaming --> RPG (Skyrim, FFVII Fan..)
 - 📖 Sci-fi (Frank Herbert, Isaac Asimov...) and horror (Google's newest algorithm update..)
